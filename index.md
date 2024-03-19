@@ -1,4 +1,4 @@
-# [Entrepreneur Name] 
+# EDMS
 
 ### Skater. Artist. Designer. Creator.
 
@@ -6,13 +6,13 @@
 
 ## Explore the Boundless Creativity
 
-[Entrepreneur Name] is a multifaceted creative force, blending the realms of skating, art, design, and music into a unique and captivating expression. With a passion that defies boundaries, he continuously pushes the limits of innovation and style.
+EDMS is a multifaceted creative force, blending the realms of skating, art, design, and music into a unique and captivating expression. With a passion that defies boundaries, he continuously pushes the limits of innovation and style.
 
 ---
 
 ## The Skater's Canvas
 
-On the concrete streets and skate parks, [Name]'s board becomes his canvas. His fluid movements and daring tricks are a testament to his dedication and mastery of the craft. Witness the raw energy and artistry in his [skating video/gallery](link).
+On the concrete streets and skate parks, EDMS' board becomes his canvas. His fluid movements and daring tricks are a testament to his dedication and mastery of the craft. Witness the raw energy and artistry in his [skating video/gallery](link).
 
 ## Artistic Visions
 
